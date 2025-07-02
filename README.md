@@ -10,3 +10,4 @@ En este repositorio podrán encontrar información, enlaces y material sobre opo
 6. CNPEM en Brasil:
 7. Grupo de Ingeniería Aeroespacial (GIA):
 8. Asistencias del CIMPA:
+https://drive.google.com/drive/folders/1CwgsUmBcvbe6oq3tkXqucWlTntDcRqOD?usp=drive_link
